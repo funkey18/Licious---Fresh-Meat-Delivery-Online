@@ -7,9 +7,11 @@ receive is handpicked and maintained at the perfect temperature to preserve its
 freshness and natural flavors.
 
 Features:
+
 • Wide Product Selection: Explore a diverse selection of meats including chicken,
   mutton, and seafood, as well as marinades and cold cuts to suit every taste and
   preference.
+  
 • Freshness Guarantee: Licious is committed to selling only the freshest meat that
   its team of experts would personally enjoy. Every product is carefully selected and
   stored at the optimal temperature to maintain its freshness and juiciness.
